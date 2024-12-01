@@ -1,1 +1,1 @@
-# data-for-the-lovers-of-my-website-
+how to add games to this
